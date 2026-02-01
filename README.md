@@ -5,6 +5,8 @@
 
 w2i, c+h enc always
 
+if my pony is sleeping, i likely am too! ur welcome to sit with me when i am no need to ask !
+
 ![](https://komarev.com/ghpvc/?username=vexcub&color=yellow)
 
 <!--
