@@ -1,7 +1,7 @@
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1ejcs2dvglyekoypi3iywt346&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=eeae3f&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
 
-[rentry](https://rentry.co/blitzfizz)   [pronouns](https://en.pronouns.page/@vexcub)  [ata](https://vexcub.atabook.org/)
+[rentry](https://rentry.co/blitzfizz)   [pronouns](https://pronouns.cc/@vexcub)  [ata](https://vexcub.atabook.org/)
 
 w2i, c+h enc always
 
