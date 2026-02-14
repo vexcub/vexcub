@@ -1,3 +1,5 @@
+if u whisper me to promo im blocking u. im not giving u my supporter perks to use unless were close friends
+
 [![spotify-github-profile](https://spotify-github-profile.kittinanx.com/api/view?uid=1ejcs2dvglyekoypi3iywt346&cover_image=true&theme=spotify-embed&show_offline=false&background_color=121212&interchange=false&profanity=false&bar_color=eeae3f&bar_color_cover=false&mode=dark)](https://github.com/kittinan/spotify-github-profile)
 
 
