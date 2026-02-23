@@ -1,5 +1,6 @@
 if u whisper me to promo im blocking u. im already in a party and not looking to leave it
 
+IDK HOW TO MAKE THIS PRETTY! IF U HAVE TIPS WHISPER OR LEAVE A MESSAGE IN MY ATA TY
 
 [rentry](https://rentry.co/blitzfizz)   [pronouns](https://pronouns.cc/@vexcub)  [ata](https://vexcub.atabook.org/)
 
