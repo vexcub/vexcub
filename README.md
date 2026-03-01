@@ -2,7 +2,7 @@ if u whisper me to promo im blocking u. im already in a party and not looking to
 
 IDK HOW TO MAKE THIS PRETTY! IF U HAVE TIPS WHISPER OR LEAVE A MESSAGE IN MY ATA TY
 
-[rentry](https://rentry.co/blitzfizz)   [pronouns](https://pronouns.cc/@vexcub)  [ata](https://vexcub.atabook.org/)
+[rentry](https://rentry.co/psak)   [pronouns](https://pronouns.cc/@vexcub)  [ata](https://vexcub.atabook.org/)
 
 w2i, c+h enc always
 
