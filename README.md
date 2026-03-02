@@ -1,8 +1,11 @@
 
-![art by jadedkaffee](https://64.media.tumblr.com/915e16ce21d7388d3e216c39500b63da/42a34fc55213f912-42/s2048x3072/ddb2e814fd685e25406037262452bb7a8af9aab8.pnj)
-
 ![](https://komarev.com/ghpvc/?username=vexcub&color=orange)
 
+<p align="center"> <a href="https://vexcub.atabook.org"> atabook  <a href="https://rentry.co/psak/"> rentry<a> <a href="https://pronouns.cc/@vexcub">pronouns<a>
+
+<p align="center">
+  <img src="https://github.com/vexcub/vexcub/blob/main/ZSAK.jpg" />
+</p>
 <!--
 **vexcub/vexcub** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 <p align="center" dir="auto"
