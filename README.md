@@ -1,16 +1,8 @@
-if u whisper me to promo im blocking u. im already in a party and not looking to leave it
-
-IDK HOW TO MAKE THIS PRETTY! IF U HAVE TIPS WHISPER OR LEAVE A MESSAGE IN MY ATA TY
-
 [rentry](https://rentry.co/psak)   [pronouns](https://pronouns.cc/@vexcub)  [ata](https://vexcub.atabook.org/)
 
-w2i, c+h enc always
+![art by jadedkaffee](https://64.media.tumblr.com/915e16ce21d7388d3e216c39500b63da/42a34fc55213f912-42/s2048x3072/ddb2e814fd685e25406037262452bb7a8af9aab8.pnj)
 
-please interact if ur a minecraft arg fan !!! please please please
-
-if my pony is sleeping, i likely am too! ur welcome to sit with me when i am no need to ask !
-
-![](https://komarev.com/ghpvc/?username=vexcub&color=yellow)
+![](https://komarev.com/ghpvc/?username=vexcub&color=orange)
 
 <!--
 **vexcub/vexcub** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
